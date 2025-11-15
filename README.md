@@ -1,1 +1,1 @@
-# burmese-encyclopedia-of-everything-wiki
+# အရာအားလုံး၏စွယ်စုံကျမ်း
